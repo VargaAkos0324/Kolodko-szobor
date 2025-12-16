@@ -7,3 +7,4 @@ A szobor Garfieldet jellegzetes, kissé lustán elnyúló testtartásban ábráz
 A Garfield miniszobor több jelentésszinttel bír. Egyrészt a popkultúra ikonikus szereplőjeként nosztalgikus élményt nyújt azoknak, akik a képregényeken és rajzfilmsorozatokon nőttek fel. Másrészt finom társadalmi utalást is hordoz: Garfield lustasága, cinizmusa és az élvezetek iránti vonzalma ironikus tükörként szolgálhat a modern városi élet túlterheltségével szemben.
 
 A szobor Kolodko Mihályra jellemző módon gerilla-jelleggel, hivatalos avatás nélkül került kihelyezésre, így a járókelők számára váratlan felfedezés élményét kínálja. Az alkotás jól példázza, miként képes a művész apró léptékű szobrokkal mosolyt csalni az emberek arcára, és játékos formában új értelmezési keretet adni a köztereknek.
+Kérdés:Garfield kolodko bemutatás
