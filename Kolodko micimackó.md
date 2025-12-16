@@ -7,3 +7,4 @@ A szobor Micimackót jellegzetes, kissé töprengő testtartásban ábrázolja. 
 A Micimackó miniszobor több értelmezési réteget hordoz. Egyrészt utal A. A. Milne klasszikus meséire, amelyek generációk számára jelentettek erkölcsi és érzelmi kapaszkodót. Másrészt Kolodko művében a figura felnőtt környezetbe kerülve új jelentést kap: a rohanó városi élet közepén a lassúság, az egyszerű örömök és az őszinte barátság fontosságára emlékeztet.
 
 A szobor gerilla-jelleggel, hivatalos felavatás nélkül került kihelyezésre, így a járókelők számára a felfedezés örömét nyújtja. A Micimackó miniszobor jól példázza Kolodko Mihály művészetének lényegét: apró léptékű alkotásokkal képes erős érzelmi hatást kiváltani, és játékos módon újragondolni a közterek szerepét.
+Kérdés:
