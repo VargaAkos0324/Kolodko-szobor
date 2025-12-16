@@ -7,3 +7,4 @@ A kis méretű bronzszobor egy köpenybe burkolózó, jellegzetes pózban ábrá
 A Drakula miniszobor több jelentésréteget hordoz. Egyrészt utal a kelet-európai történelemre és a hozzá kapcsolódó mítoszokra, másrészt reflektál a popkultúrára, ahol Drakula alakja világszerte ismertté vált. A szobor gerilla jelleggel került kihelyezésre, hivatalos avatás nélkül, így a járókelők számára a felfedezés élményét nyújtja.
 
 Az alkotás jól példázza Kolodko Mihály művészetének lényegét: apró, mégis tartalmas szobrokon keresztül párbeszédet kezdeményez a városi térrel és a közönséggel. A Drakula miniszobor egyszerre történelmi utalás, kulturális játék és kortárs művészeti gesztus, amely mosolyt csal az arra járók arcára és gondolkodásra készteti őket.
+Kérdés:Drakula kolodko bemutatás
