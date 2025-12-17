@@ -4,3 +4,4 @@ A szobor Kolodko jellegzetes stílusában készült: kisméretű, mégis rendkí
 Kolodko alkotása nem csupán emlékmű, hanem egyfajta városi gesztus is: csendes főhajtás egy olyan művész előtt, aki Budapesthez és a magyar kultúrához szorosan kötődik. A miniszobor arra hívja fel a figyelmet, hogy a nagy történetek gyakran kis formákban élnek tovább, és hogy Seress Rezső öröksége ma is jelen van a város szövetében, dallamokban, emlékekben és ilyen apró, mégis jelentős műalkotásokban.
 Kérdés: Seress Rezső kolodko bemutatás
  
+Forrás: chatgpt
