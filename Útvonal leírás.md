@@ -1,7 +1,4 @@
-A mi túránkat a vajdahunyad várnál adrakula szobornál kezdtük.
-A városligeten át haladva mentünk a következő mini szoborhoz ami a Micimackó szobor volt a damjanich utcába.
-Ez után a Bethlen Gábor utcán keresztűl haladva megérkeztünk a dembinszky utcában ahol nagynehezen megtaláltuk egy oszlopon tetején a garfield szobrot.
-A Garfield szobor után az útvonal szerint továbbindultunk a Szénes Hanna miniszoborhoz, majd a Rákóczi út környékén megnéztük a Búvár és a kulcs Kolodko-szobrot.
-Ezután a belváros felé haladva eljutottunk a Seress Rezső miniszoborhoz, majd a Nyugati pályaudvarnál megkerestük a Halott mókus szobrot.
-A túrát végül a Margit hídnál zártuk, ahonnan szép kilátás nyílt a Dunára, és itt fejeztük be a városi sétánkat.
- 
+A séta a Városligetből, a Vajdahunyad vára környékéről indul. A liget zöld sétányain haladva hamar feltűnik az első Kolodko-miniszobor, a Drakula, majd nem messze tőle a Micimackó
+A Dózsa György út irányába haladva érkezünk meg Erzsébetvárosba, ahol egymást követik a miniszobrok: először a Garfield, majd a csendesebb emléket állító Szenes Hanna. Ezek az alkotások már a belvárosi utcák nyüzsgésében nehezen észrevehetőek.
+ A séta tovább vezet a belváros felé, ahol a rejtettebb Búvár és a kulcs, majd a Seress Rezső miniszobor következik. Ezek az állomások kifejezetten arra ösztönöznek, hogy lelassítsunk, és felfedezzük Budapest apró részleteit.
+ Az útvonal a Nyugati pályaudvar környékén zárul a különleges Halott mókus miniszobornál, majd a Margit híd pesti hídfőjénél ér véget. A teljes séta körülbelül 7 kilométer hosszú, és kényelmes tempóban 1–1,5 óra alatt bejárható.
